@@ -3,7 +3,7 @@
 Hi! this is just my intro thing for ponytown
 i'm usually semi-afk (like i have ponytown tab open while im on my phone) im double screening (ik ik im a chudd nuuu) ill respond ASAP i promise
 
-im a copinglink, my main linktypes are Luffy (One Piece) and XChara (Xtale)
+im a copinglink, my main linktypes are Luffy (One Piece) and XChara (Xtale) Doubles OK!
 
 feel free to interact with me im just shy sorrys aaahaga yeay okey also im very much multifandom. im coming back to ponytown after a few years tho so i onky have  few ponies rn okey.
 
